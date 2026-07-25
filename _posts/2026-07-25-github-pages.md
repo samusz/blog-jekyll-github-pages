@@ -1,6 +1,7 @@
 ---
 title: A new blog with GitHub Pages and Jekyll
 date: 2026-07-25
+tag: blog configuration
 ---
 
 Posts formats is `_posts/YYYY-MM-DD-title.md`. 
