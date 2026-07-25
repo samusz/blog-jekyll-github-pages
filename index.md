@@ -1,7 +1,6 @@
 ---
 title: Welcome to my blog!
 author: samusz
-date: long time ago 
 ---
 
 Welcome Bienvenue 
