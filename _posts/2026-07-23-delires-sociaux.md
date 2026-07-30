@@ -11,21 +11,21 @@ Et en particulier pour ceux qui essaie de changer les choses pour les opprimés
 avec beaucoup de courage personnel.
 
 
-Ainsi Marie Mesmeur, une députée (c'est pas rien), qui a fait partie de la flottille en mai 2026 semble subir une vague de posts haineux ou méprisants ou juste de réaction "Vous encombrez la justice" pour un simple dépot de plainte, qui vient d'être acceptée par le parquet antiterrorite.
+Ainsi Marie Mesmeur, une députée (c'est pas rien), qui ayant fait partie de la flottille en mai 2026 semble subir une vague de posts haineux ou méprisants, ou juste de réactions dénigrantes ("Vous encombrez la justice"), pour un simple dépot de plainte. Mais ce qui change tout, c'est  qu'elle vient d'être acceptée et sera prise en charge par le parquet antiterrorite.
 
-Car il s'agit de crimes gravissimes (supposéments; la justice le determinera), commis en mer lors de leur action "Flotille pour Gaza".
+Car il s'agirait (conditionnel car la justice le determinera) de crimes gravissimes commis en haute mer, lors de l'action "Flotille pour Gaza" .
 
-Je me permet ici de mette un post qui me semble particulierement problematique en exerge 
+Je me permet de mettre en exerge, en exemple, un post qui m'a semblé particulierement problematique. 
 
-## citation 
+## citation
 
 Tu as souillée la terre saint par ta présence, c’est plutôt toi qu’on devrait attaquer en justice pour viol de la terre sainte par idéologie!
 12:30 PM · 22 juil. 2026
 
 
-## reponse 
+## Ma réponse à ce post 
 
-J'ai été tellement choqué par ces "arguments", que j'ai répondu, un peu sous le coup de l'humeur..
+J'ai été tellement choqué par ces "arguments", que j'ai répondu, un peu sous le coup de l'humeur.
 
 ```
 ```
